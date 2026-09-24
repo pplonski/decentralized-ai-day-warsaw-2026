@@ -1,0 +1,1 @@
+# decentralized-ai-day-warsaw-2026
